@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Noir-Rogue
 - 👀 I’m interested in becoming a work from home data analyst/scientist
 - 🌱 I’m currently learning how to find a proper job
-- 📫 How to reach me ...
+- 📫 How to reach me nate.hickey@yahoo.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Allodoxaphobia is the fear of other people's opinions.
 
